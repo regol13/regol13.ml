@@ -1,4 +1,4 @@
-## Welcome to Minor League of Regol 13 Elementary School
+## Welcome to Minor League of Regol 13,State  Elementary School
 Here we gather all minor Warriors, mentor by pasionate Heros.
 
 ### Support or Contact
